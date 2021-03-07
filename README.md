@@ -1,0 +1,2 @@
+# hemked
+Bapak kau petarung
